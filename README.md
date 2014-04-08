@@ -30,4 +30,4 @@ Click Next. <br /><br />
 <img src="http://c.lionsea.net//bonnie/certificate%20error%202.png" />
 You can read more articles about certificate error: <br /><br />
 <a href="http://www.windows8downloads.com/win8-smart-certificate-errors-fixer-pro-afqzyvxd/">ie security certificate errors</a><br />
-<a href="http://www.hello-wold.com/">http://www.youtube.com/watch?v=cBhqGvKDH9g</a>security certificate problem<br />
+<a href="http://www.youtube.com/watch?v=cBhqGvKDH9g"></a>security certificate problem<br />
